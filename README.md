@@ -1,1 +1,1 @@
-Repository will revisied soon!
+The repository will be revised soon!
